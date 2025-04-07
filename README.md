@@ -19,12 +19,12 @@ G口带宽接入：所有节点均配备G口级别的带宽接入，确保用户
 
 **访问官网**：点击下方链接进入
 
-[ **杜卡迪机场官网地址入口1 « **](https://dukadi.info/#/register?code=JngGYBqM)
-[ **杜卡迪机场官网地址入口2 « **](https://dukadi.cv/#/register?code=JngGYBqM)
-[ **杜卡迪机场官网地址入口3 « **](https://dukadi.eu/#/register?code=JngGYBqM)
-[ **杜卡迪机场官网地址入口4 « **](https://dukadi.sbs/#/register?code=JngGYBqM)
-[ **杜卡迪机场官网地址入口5 « **](https://dukadi.shop/#/register?code=JngGYBqM)
-[ **杜卡迪机场官网地址入口6 « **](https://www.dukadi.one/#/register?code=JngGYBqM)
+[杜卡迪机场官网地址入口1 «](https://dukadi.info/#/register?code=JngGYBqM)
+[杜卡迪机场官网地址入口2 «](https://dukadi.cv/#/register?code=JngGYBqM)
+[杜卡迪机场官网地址入口3 «](https://dukadi.eu/#/register?code=JngGYBqM)
+[杜卡迪机场官网地址入口4 «](https://dukadi.sbs/#/register?code=JngGYBqM)
+[杜卡迪机场官网地址入口5 «](https://dukadi.shop/#/register?code=JngGYBqM)
+[杜卡迪机场官网地址入口6 «](https://www.dukadi.one/#/register?code=JngGYBqM)
 
 
 **点击注册**：在主页右上角找到并点击“注册”按钮。
